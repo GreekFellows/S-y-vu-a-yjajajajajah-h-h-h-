@@ -1,4 +1,4 @@
-S-y-vu-a-yjajajajajah-h-h-h-
+SèŁóy(vu)Чaéíóúyjajajajajahóhóhóhó
 ============================
 
 A lexicon of an artificial language.
